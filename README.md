@@ -103,7 +103,7 @@ This project celebrates the rich history and global impact of the Olympic Games 
 
 **Durga Pravallika Kuchipudi**  
 Master’s in Applied Data Science – Indiana University  
-🔗 [LinkedIn](https://www.linkedin.com/in/durgapravallikakuchipudi)
+🔗 [LinkedIn](https://www.linkedin.com/in/durgapk/)
 
 ---
 
